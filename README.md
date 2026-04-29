@@ -21,7 +21,7 @@ Haz clic en el enlace para descargar El arte de ser nosotros PDF por Inma Rubial
 
 <br>
 
-<a href="69333269"><strong>📥 Descargar El arte de ser nosotros 👈</strong></a>
+<a href="https://flipbooks.top/read/69333269/"><strong>📥 Descargar El arte de ser nosotros 👈</strong></a>
 
 ---
 
@@ -72,6 +72,6 @@ Sí, versión completa con fines educativos.
 
 <div align="center">
 
-<a href="69333269"><strong>📥 Descargar El arte de ser nosotros 👈</strong></a>
+<a href="https://flipbooks.top/read/69333269/"><strong>📥 Descargar El arte de ser nosotros 👈</strong></a>
 
 </div>
